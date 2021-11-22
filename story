@@ -8,3 +8,4 @@ On her 16th birthday Aroura fell in a deep slumber.
 Prince Philip went to give the princess true loves kiss but Maleficent turned into a dragon.
 Philip defetead Maleficent and saved princess Aroura.
 And they lived happily ever after.
+The End.
